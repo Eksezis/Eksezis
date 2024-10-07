@@ -1,5 +1,5 @@
 - 👋 Yo, I'm Eksezis.
-- 👀 I’m interested in sleeping and suffering.
+- 👀 I’m interested in sleeping.
 - 🌱 I’m currently learning programing obviously.
 - 💞️ I’m looking to collaborate on (you do all the work) type of project.
 - 📫 How to reach me? (Just don't)
